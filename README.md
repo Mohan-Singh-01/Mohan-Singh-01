@@ -1,7 +1,5 @@
-- 👋 Hi, I’m @Mohan-Singh-01
-- 👀 I’m interested in Coding Cooking and Reading
-- 🌱 I’m currently learning VERY MUCH
-- 💞️ I’m looking to collaborate on DISCORD
-- 📫 How to reach me itz.ur_penguin (insta)
-- 😄 Pronouns: He/Him
-- ⚡ Fun fact: You are a STALKER!!
+- 👋 Hi, Mohan, Owner of this Project
+reach me out in mail = mohanch39381@gmail.com
+free to use change the settings and background if u need!....
+Hope you find this informative
+ENJOY!!!
